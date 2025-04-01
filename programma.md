@@ -43,7 +43,7 @@
 - Unesc. A. Wels
 - Burgerschap aanpakken in het bèta-onderwijs. M. Vos
 - Docenten en AI. T. Naberink
-- 
+- Lesmateriaal voor Duurzaamheidsontwikkeling. P. Duifhuis
 - 
 
 12.20-13.20 Lunch
