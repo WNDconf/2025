@@ -9,9 +9,9 @@
 
 13.50-14.45 Plenaire lezing door I. S. 
 
-14.45-15.00 Conferentiemededelingen
+14.45-14.55 Conferentiemededelingen
 
-15.00-15.30 Koffie/thee
+14.55-15.30 Koffie/thee
 
 15.30-16.20 Keuzelezingen:
 - Soci. Sc. Iss. D. Jacobs
