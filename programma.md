@@ -26,7 +26,7 @@
 
 19.30-20.45 Werkgroepen
 
-19.30-23.00 Markt
+19.30-23.00 Markt & Proevenpodium
 
 
 ## Zaterdag 13 december 2025
