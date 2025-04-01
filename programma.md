@@ -3,26 +3,26 @@
 **Thema: Burgerschap**
 
 ## Vrijdag 12 december 2025
-12.30-14.00 Ontvangst
+12.30-13.45 Ontvangst
 
-14.00-14.05 Opening van de conferentie
+13.45-13.50 Opening van de conferentie
 
-14.05-15.00 Plenaire lezing door I. S. 
+13.50-14.45 Plenaire lezing door I. S. 
 
-15.10-15.20 Conferentiemededelingen
+14.45-15.00 Conferentiemededelingen
 
-15.20-16.00 Koffie/thee
+15.00-15.30 Koffie/thee
 
-16.00-16.50 Keuzelezingen:
+15.30-16.20 Keuzelezingen:
 - Soci. Sc. Iss. D. Jacobs
 - Oefenrechtbank F. Secomandi
 - Rol van arg. F. Pols
 - Burg. en nat.mus. A. Maas
 - Black hole finder.   P. Jonker
 
-16.50-17.45 Aperitief / Markt
+16.20-17.30 Aperitief / Markt
 
-17.45-19.30 Diner
+17.30-19.30 Diner
 
 19.30-20.45 Werkgroepen
 
